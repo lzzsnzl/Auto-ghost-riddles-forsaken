@@ -1,1 +1,0 @@
-# Auto-ghost-riddles-forsaken
